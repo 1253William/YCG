@@ -1,2 +1,2 @@
 # YCG
-Official website for Young Champions Network Global NGO
+Official website for Young Champions Global Network(YCGN) NGO
